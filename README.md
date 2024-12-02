@@ -1,1 +1,1 @@
-# yapayzekaprenispleri
+# yapayzekaprenispleri midterm
